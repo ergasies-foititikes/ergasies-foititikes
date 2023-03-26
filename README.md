@@ -27,3 +27,10 @@ https://www.linkedin.com/company/ergasies-foititikes-gr
 Ακολουθήστε μας στο Medium : 
 https://ergasies-foititikes.medium.com
 
+Ακολουθήστε μας στο Twitter :
+https://twitter.com/ErgasiesFoititi
+
+Ακολουθήστε μας στο TikTok :
+https://www.tiktok.com/@ergasiesfoititikes
+
+
